@@ -1,1 +1,1 @@
-# Girls-Girl-
+#"Girls Girl💋" project is a lifestyle web application that serves as a hub for women, focusing on trends, life hacks, and empowering content across various categories, including news, fashion, sports, and food. It provides users with valuable insights, practical advice, and engaging community support, all designed to inspire and inform. The platform fosters a vibrant community where users can share and discover relevant content, redefining modern womanhood in an interactive and supportive environment.
